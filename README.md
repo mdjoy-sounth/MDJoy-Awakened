@@ -1,11 +1,10 @@
 
 ![1000063744](https://github.com/user-attachments/assets/d0914fb2-059a-4ffa-b371-7fb308873ead)
-  
-Hello 
-  
-I'm MD Joy-Awakened,
-this country Bangladesh is bothering me, i
-need help and i want justish. I upload 
-evidence in my youtube channel. 
 
-This is a proof Link,<a href="https://youtube.com/shorts/mp4YiZkHYlo?feature=share" target="_blank">a shot video.
+Hello,
+I’m MD Joy-Awakened.
+The situation I’m facing here in Bangladesh has affected me deeply. I am seeking proper help and justice. I have uploaded evidence related to my situation on my YouTube channel.
+
+
+Here is the link to a short evidence video:
+https://youtube.com/shorts/mp4YiZkHYlo?feature=share<a href="https://youtube.com/shorts/mp4YiZkHYlo?feature=share" target="_blank">https://youtube.com/shorts/mp4YiZkHYlo?feature=share
