@@ -10,18 +10,8 @@ Here is the link to a short evidence video:
 <a href="https://youtube.com/shorts/mp4YiZkHYlo?feature=share" target="_blank">https://youtube.com/shorts/mp4YiZkHYlo?feature=share
 
 If you’re still not clear, consider this:
-Why can the brain not stop hearing <a href="https://mdjoy-sounth.github.io/sounth/" target="_blank">Sounth?</a>
-Why can it not block <a href="https://mdjoy-sounth.github.io/VMI" target="_blank">Visual Mind Illusion?</a>
-Why can it not stop others from using <a href="https://mdjoy-sounth.github.io/Ovjarb/" target="_blank">Ovjarb?</a> on someone?
+Why can the brain not stop hearing Sounth?
+Why can it not block visual mind illusions?
+Why can it not stop others from using Ovjarb on someone?
 
 Because these abilities were learned — just like human speech — and the world does not interfere directly with any living being. That is one of the laws of the world. And we do not have the power to silence those sources.
-
-
-
-<a href="https://mdjoy-sounth.github.io/sounth/" target="_blank">Sounth?</a>
-
-
-<a href="https://mdjoy-sounth.github.io/VMI" target="_blank">VMI – Visual Mind Illusion</a>
-
-
-<a href="https://mdjoy-sounth.github.io/Ovjarb/" target="_blank">Ovjarb</a>
