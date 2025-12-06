@@ -9,9 +9,7 @@ I’m MD Joy-Awakened. The situation I’m facing here in Bangladesh has affecte
 Here is the link to a short evidence video:
 <a href="https://youtube.com/shorts/mp4YiZkHYlo?feature=share" target="_blank">https://youtube.com/shorts/mp4YiZkHYlo?feature=share
 
-</section>
-
-</ul>
+<section>
 
 If you’re still not clear, consider this:
 Why can the brain not stop hearing sound?
@@ -19,5 +17,3 @@ Why can it not block visual mind illusions?
 Why can it not stop others from using Ovjarb on someone?
 
 Because these abilities were learned — just like human speech — and the world does not interfere directly with any living being. That is one of the laws of the world. And we do not have the power to silence those sources.
-
-</section>
