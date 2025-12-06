@@ -13,7 +13,7 @@ Here is the link to a short evidence video:
 
 </ul>
 
-<h2>If you’re still not clear,<h2>consider this:
+If you’re still not clear, consider this:
 Why can the brain not stop hearing sound?
 Why can it not block visual mind illusions?
 Why can it not stop others from using Ovjarb on someone?
